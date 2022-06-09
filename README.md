@@ -1,5 +1,6 @@
-# apk.aridjaya.com
-
-- [Hot Tiktok](https://apk.aridjaya.com/profitablecpmgate)
-- [Free Download Movie](https://apk.aridjaya.com/movie)
-- [BigoLive](https://apk.aridjaya.com/bigo)
+# [CLICK HERE TO PLAY 👇👇👇](https://apk.aridjaya.com/bigo)
+- [👀 Snap Chat](https://apk.aridjaya.com/profitablecpmgate)
+- [🌸 Free Download Movie](https://apk.aridjaya.com/movie)
+- [👅 BigoLive](https://apk.aridjaya.com/bigo)
+- [📎 Hot Tiktok](https://apk.aridjaya.com/tiktok)
+- [🔐 Video Full Free HD](https://apk.aridjaya.com/video)
